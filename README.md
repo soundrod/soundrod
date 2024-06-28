@@ -1,4 +1,4 @@
-## Hi there 👋
+https://media.discordapp.net/attachments/1164989282063233157/1256188893519155242/image.png?ex=667fdc93&is=667e8b13&hm=fd33e8469cf09991539fec5002ae7a3be783936eec9f537fc53e584c1f7ad655&=&format=webp&quality=lossless&width=699&height=583
 
 <!--
 **soundrod/soundrod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
