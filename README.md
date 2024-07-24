@@ -1,4 +1,6 @@
-                                      "i dont care that your a stoner !! red wine supernova!!"
-![image](https://github.com/user-attachments/assets/aeb3f87d-e83b-4e10-b28b-b9c8e31e587e)
+                                                            " MAYBE CUPID WONT MISS."
+
+![image](https://github.com/user-attachments/assets/adf7ba95-086c-442c-a3ad-eb6a1d3f6676)
+
 
 
