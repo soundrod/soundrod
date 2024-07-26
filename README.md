@@ -1,6 +1,6 @@
-                                                     " MAYBE CUPID WONT MISS."
+                                                     " just don't leave me alone wondering where you are. "
 
-![image](https://github.com/user-attachments/assets/adf7ba95-086c-442c-a3ad-eb6a1d3f6676)
+![image](https://github.com/user-attachments/assets/33d6ddf8-6548-4b9e-82b1-9371686bea0a)
 
 
 
