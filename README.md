@@ -1,6 +1,7 @@
-                                       " just don't leave me alone wondering where you are. "
+                                       " Alkohol, zene, ne znam gde sam. "
 
- ![image](https://github.com/user-attachments/assets/b8385344-ae71-48cb-925f-1c8cfaa3c3aa)
+ ![image](https://github.com/user-attachments/assets/c5073c22-c3a3-43d0-b5c7-eefb4f9622b9)
+
 
 
 
