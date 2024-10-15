@@ -12,8 +12,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀
-ㅤㅤㅤㅤ⠀
-⠀ ⠀![](https://komarev.com/ghpvc/?username=soundrod&color=959185&label=visitors&style=plastic&abbreviated=true)⠀
+ㅤㅤㅤㅤ⠀![](https://komarev.com/ghpvc/?username=soundrod&color=959185&label=visitors&style=plastic&abbreviated=true)⠀
 ㅤㅤㅤ
 ㅤㅤㅤ
 ㅤㅤㅤ
