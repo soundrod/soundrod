@@ -13,8 +13,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=38&duration=3000&pause=500&color=6D767B&width=435&lines=its+such+a+shame+that+you+became+;such+a+issue;oh+dear+locke+ill+miss+you!)](https://git.io/typing-svg)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/9c6ee903-3eb4-4bce-b4c4-9ca8153db48a)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⠀⠀⠀
 ⠀⠀⠀
