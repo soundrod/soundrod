@@ -31,7 +31,8 @@
 
 
 
-https://images-ext-1.discordapp.net/external/YlGRcHM3rLCWrFxh3QcdDzXx-3VSGuV3jjZj3wShudI/https/media.tenor.com/L5EqaRGNFeQAAAPo/master-chief.mp4
+![ezgif com-effects](https://github.com/user-attachments/assets/562c88aa-f88f-41c4-9274-70f0d8320cbd)
+
 
 
 
