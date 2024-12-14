@@ -29,7 +29,6 @@
 
 
 
-![ezgif com-resize](https://github.com/user-attachments/assets/6f998e90-aa09-4eb4-8571-e16d49a5ae8d)
 
 
 
