@@ -31,7 +31,8 @@
 
 
 
-![ezgif com-effects](https://github.com/user-attachments/assets/562c88aa-f88f-41c4-9274-70f0d8320cbd)
+![ezgif com-resize](https://github.com/user-attachments/assets/6f998e90-aa09-4eb4-8571-e16d49a5ae8d)
+
 
 
 
