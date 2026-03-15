@@ -8,12 +8,10 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ![](https://komarev.com/ghpvc/?username=soundrod&color=959185&label=bro&style=plastic&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ![](https://komarev.com/ghpvc/?username=soundrod&color=e37c65&label=slops&style=plastic&abbreviated=true)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⠀⠀⠀
-⠀⠀⠀<img width="1022" height="462" alt="Image" src="https://github.com/user-attachments/assets/4c298245-a667-4d32-b53e-e41947fca142" />
+⠀⠀⠀<img width="900" height="483" alt="Image" src="https://github.com/user-attachments/assets/e29beba8-495a-49b5-acdf-9c66e9d94f2c" />
 ⠀⠀⠀
 ⠀⠀⠀
 
