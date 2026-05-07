@@ -10,7 +10,7 @@
   
   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Acme&duration=2000&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=When+there's+madness;When+there's+poison+in+your+head;When+the+sadness+leaves+you+broken+in+your+bed;+i+will+hold+you+in+the+depths+of+your+despair;+And+it's+all+in+the+name+of+love+!" alt="Typing SVG" /></a>
     
-<p align="center"><a href="hhttps://github.com/soundrod">⠀⠀────</a></p>
+<p align="center"><a href="hhttps://github.com/soundrod">────</a></p>
 
 <p align="center"><img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/71983e5e-ff85-4f3f-b4e1-476f1f6df5f6" />
 
