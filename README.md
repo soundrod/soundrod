@@ -6,14 +6,11 @@
 <p align="center">i love my friends a whole lot
   <p align="center">isc or isaac if we are friends
 <p align="center"><a href="https://symbrock.atabook.org/">my attabook</a></p>
-⠀⠀⠀<p align="center"><img width="1080" height="240" alt="Image" src="https://github.com/user-attachments/assets/1197c6b0-e642-499b-94a8-e80f316d5c4b" />
   
     
 <p align="center"><a href="hhttps://github.com/soundrod">────</a></p>
 
-<p align="center"><img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/71983e5e-ff85-4f3f-b4e1-476f1f6df5f6" />
-
-
+⠀⠀⠀<p align="center"><img width="1080" height="240" alt="Image" src="https://github.com/user-attachments/assets/1197c6b0-e642-499b-94a8-e80f316d5c4b" />
 
 
 
