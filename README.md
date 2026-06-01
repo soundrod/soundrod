@@ -3,8 +3,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=1f1f1f&label=slops&style=plastic&abbreviated=true)
-<p align="center">i love my friends a whole lot
-  <p align="center">isc or isaac if we are friends
+<p align="center">not online that much cuz im busyy
+  <p align="center">isaac only
 <p align="center"><a href="https://symbrock.atabook.org/">my attabook</a></p>
   
     
