@@ -10,7 +10,7 @@
     
 <p align="center"><a href="hhttps://github.com/soundrod">────</a></p>
 
-⠀⠀⠀<p align="center"><img width="1080" height="240" alt="Image" src="https://github.com/user-attachments/assets/1197c6b0-e642-499b-94a8-e80f316d5c4b" />
+⠀⠀⠀<p align="center"><img width="779" height="392" alt="Image" src="https://github.com/user-attachments/assets/e4122396-9981-4767-b873-6014dcfba5ef" />
 
 
 
