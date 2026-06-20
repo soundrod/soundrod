@@ -3,8 +3,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=1f1f1f&label=slops&style=plastic&abbreviated=true)
-<p align="center">not online that much cuz im busyy
-  <p align="center">isaac only
 <p align="center"><a href="https://symbrock.atabook.org/">my attabook</a></p>
   
     
