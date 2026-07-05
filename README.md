@@ -3,6 +3,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=1f1f1f&label=slops&style=plastic&abbreviated=true)
+    <p align="center">ㅤ
 <p align="center"><a href="https://symbrock.atabook.org/">my attabook</a></p>
     <p align="center">ㅤ
 <p align="center"><a href="hhttps://github.com/soundrod">────</a></p>
