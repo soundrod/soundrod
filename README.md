@@ -3,13 +3,26 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=1f1f1f&label=weare93&style=plastic&abbreviated=true)
-    <p align="center">ㅤ
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=arial&duration=1500&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=Maybe+you'll+change+;Abandon+all+your+wicked+ways;Make+amends+and+start+anew+again;Maybe+you'll+see;All+the+wrongs+you+did+to+me;And+start+all+over%2C+start+all+over;Oh+my+god%2C+who+am+I+kidding%3F;Now%2C+let's+not+get+overzealous+here;You've+always+been+a+huge+piece+of+shit." alt="Typing SVG" /></a>
-    <p align="center">ㅤ
-    <p align="center">ㅤ
-⠀⠀⠀<p align="center"><img width="426" height="426" alt="image" src="https://github.com/user-attachments/assets/5dd7b0f5-418c-4352-86e0-745f39b00456" />
+<div align="center">
 
 
+hi im isaac
+
+
+im the biggest mm93 and lm10 supporter
+
+my < [bestfriend](https://github.com/danticktum) 3
+
+ </div>
+
+<div align="center">
+
+**[rentry](https://rentry.co/marc-marquez) ‎ ‎<img src="https://file.garden/aeeipN9zHxfu8zWH/jsaaoa.png" alt="ant" width="60"/> ‎ [atabook](https://symbrock.atabook.org/)**
+<p align="center">ㅤ
+ </div>
+<p align="center"><img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/8aec4894-c96f-4324-9d6c-d2f95007f60f" />
+
+<div align="center">
 
 
 
