@@ -10,6 +10,8 @@
 ⠀⠀
        
   **[carrd](https://marc-marquez.carrd.co/) ⠀⠀⠀⠀ <img src="https://github.com/user-attachments/assets/b2b2b606-67e2-4fbb-8f1e-9ce488ac05c5" width="40"> ⠀⠀⠀⠀[atabook](https://symbrock.atabook.org/)**
+
+ ⠀⠀⠀⠀  ⠀⠀      **[guns.lol](https://guns.lol/motogp)**
       </td>
     </tr>
   </table>
