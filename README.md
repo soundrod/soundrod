@@ -1,38 +1,26 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=1f1f1f&label=weare93&style=plastic&abbreviated=true)
-<p align="center"> <img width="800" height="50" alt="image" src="https://github.com/user-attachments/assets/94695192-c123-43ca-8f73-57c07885f680" /> </p>
-<img  src="https://github.com/user-attachments/assets/8ec52470-157a-46a2-8845-ee1c9ba658cd" width="300" align="right"> 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=bba49c&label=❤&style=plastic&abbreviated=true)
 
-<br>  
-  <table>
-    <tr>
-      <td>
-     ⠀⠀<img src="https://github.com/user-attachments/assets/db19bb26-6c71-4caa-9ebf-fbd4ebe4cd4c" width="40"> ⠀ ${\textsf{\color{#e5383a} isaac}}$  ⠀⠀⠀⠀
-⠀⠀
-       
-  **[carrd](https://marc-marquez.carrd.co/) ⠀⠀⠀⠀ <img src="https://github.com/user-attachments/assets/b2b2b606-67e2-4fbb-8f1e-9ce488ac05c5" width="40"> ⠀⠀⠀⠀[atabook](https://symbrock.atabook.org/)**
 
- ⠀⠀⠀⠀  ⠀⠀      **[guns.lol](https://guns.lol/motogp)**
-      </td>
-    </tr>
-  </table>
-
-<img src="https://github.com/user-attachments/assets/bfe07ae0-f664-4c10-8825-ef4c6241ee0a" width="110" height="100" align="left"> 
-
-<details>
-  <summary>⠀<img width="70" height="auto" alt="image" src="https://github.com/user-attachments/assets/33005d0a-d02c-4cfc-8a74-f828732659a3" /></summary>
-  <br/>        
-  ‎     ‎    ‎   ‎   </p>
-   
-
-  </details>
- <br/>
- <img src="https://github.com/user-attachments/assets/a4d8327b-a955-42d0-881f-e12df9cbea22" width="320" height="240" align="left"> 
-<p align="center">ㅤ
-  <p align="center">ㅤ
-     <p align="center">ㅤ
-     <p align="center">ㅤ
-
-<p align="center"> <img width="800" height="50" alt="image" src="https://github.com/user-attachments/assets/94695192-c123-43ca-8f73-57c07885f680" /> </p>
+<img align="left" width="40%" src="https://github.com/user-attachments/assets/62ab7118-3b89-4ef0-a76c-4b1be2053ed1" />
+<p align="center">
+<sub>hi im isaac or isiah</sub><br>
+<sub>im a huge marc marquez & luca marini fan</sub><br>
+<sub>i only use he/she/it pronouns</sub><br>
+<sub>im a borderline , narcissist and a system</sub>
+<br>
+<sub>before you interact read my socials</sub><br>
+<sub>⠀⠀</sub><br>
+<sub>${\text{\color{#edd8d6} You're my　\color{#ebcc83} sugar \color{#cc6070} after dinner. }}$</sub>
+<br>
+<sub>${\text{\color{#edd8d6} My　\color{#ebcc83} number one \color{#cc6070} bread winner }}$</sub><br>
+<sub>${\text{\color{#edd8d6} Aint nobody　\color{#ebcc83} else \color{#cc6070} like you ! }}$</sub>
+<br><br>
+<img width="9%" src="https://github.com/user-attachments/assets/4df8d60d-3660-4da4-9289-56a6c59ae09a" />
+</p>
+<p align="center">
+<a href="https://symbrock.atabook.org/">ata</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://shockwave.straw.page/">strawpage</a>　　<a href="https://marc-marquez.carrd.co/">carrd</a>　　<a href="https://pronouns.cc/@body">prns.cc</a>
+<br><br><br>
+<p align="center"><sub>please dniuf if im with my <a href="https://github.com/danticktum">bestfriend.</a> i will most likely ignore you.</sub></p>
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
