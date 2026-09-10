@@ -30,7 +30,6 @@
 <sub>⠀⠀</sub><br>
 <sub>⠀⠀</sub><br>
 <sub>⠀⠀</sub><br>
-<p align="center"><img width="45%" src="https://github.com/user-attachments/assets/bbc90b98-a5a0-4d03-b809-771d9a30b1a8" />
 <sub>⠀⠀</sub><br>
 <sub>⠀⠀</sub><br>
 <sub>⠀⠀</sub><br>
