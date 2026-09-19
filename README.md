@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=bba49c&label=⠀⠀Ი︵𐑼⠀⠀&style=plastic&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=bba49c&label=⠀⠀>-;;⁠;⁠;€ᐷ⠀⠀&style=plastic&abbreviated=true)
 
 
 <img align="left" width="40%" src="https://github.com/user-attachments/assets/2865f0db-bf1c-424d-89fd-70dec3b07934" />
