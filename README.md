@@ -19,8 +19,8 @@
 <p align="center">
 <a href="https://symbrock.atabook.org/">ata</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://shockwave.straw.page/">strawpage</a>　　<a href="https://marc-marquez.carrd.co/">carrd</a>　　<a href="https://pronouns.cc/@body">prns.cc</a>
 <br><br><br>
-<p align="center"><sub>please dniuf if im with my <a href="https://github.com/danticktum">bestfriend.</a> i will most likely ignore you.</sub></p>
-⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
+<p align="center"><sub>just dniuid if im with my <a href="https://github.com/danticktum">bestfriend </a>ok</sub></p>
+<p align="center"><sub>im busy these days probably not on much</sub><br>⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
