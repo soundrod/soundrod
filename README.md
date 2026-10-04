@@ -3,7 +3,7 @@
 
 <img align="left" width="50%" src="https://github.com/user-attachments/assets/7de969ef-f38c-40d1-8179-52815c8b58be" />
 <p align="center">
-<sub>hi im isaac or deer</sub><br>
+<sub>hi im isaac or dears</sub><br>
 <sub>im a huge marc marquez & luca marini fan</sub><br>
 <sub>i only use he/she pronouns</sub><br>
 <sub>im a borderline , grandiose narcissist and a system</sub><br>
