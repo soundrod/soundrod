@@ -1,12 +1,12 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=bba49c&label=⠀⠀>-;;⁠;⁠;€ᐷ⠀⠀&style=plastic&abbreviated=true)
 
 
-<img align="left" width="40%" src="https://github.com/user-attachments/assets/2865f0db-bf1c-424d-89fd-70dec3b07934" />
+<img align="left" width="50%" src="https://github.com/user-attachments/assets/7de969ef-f38c-40d1-8179-52815c8b58be" />
 <p align="center">
-<sub>hi im isaac or isiah</sub><br>
+<sub>hi im isaac or deer</sub><br>
 <sub>im a huge marc marquez & luca marini fan</sub><br>
-<sub>i only use he/she/it pronouns</sub><br>
-<sub>im a borderline , narcissist and a system</sub><br>
+<sub>i only use he/she pronouns</sub><br>
+<sub>im a borderline , grandiose narcissist and a system</sub><br>
 <sub>eng/ger mainly</sub><br>
 <sub>before you interact read my socials</sub><br>
 <sub>⠀⠀</sub><br>
