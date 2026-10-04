@@ -19,6 +19,7 @@
 <p align="center">
 <a href="https://symbrock.atabook.org/">ata</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://shockwave.straw.page/">strawpage</a>　　<a href="https://marc-marquez.carrd.co/">carrd</a>　　<a href="https://fluffle.cc/lucamarini">fluffle.cc</a>
 <br><br><br>
+  <sub>⠀⠀</sub><br>
 <p align="center"><sub>just dniuid if im with my <a href="https://github.com/danticktum">bestfriend </a>ok</sub></p>
 <p align="center"><sub>im busy these days probably not on much</sub><br>⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
