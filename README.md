@@ -6,7 +6,6 @@
 <sub>hi im isaac or dears</sub><br>
 <sub>im a huge marc marquez & luca marini fan</sub><br>
 <sub>i only use he/she pronouns</sub><br>
-<sub>im a borderline , grandiose narcissist and a system</sub><br>
 <sub>eng/ger mainly</sub><br>
 <sub>before you interact read my socials</sub><br>
 <sub>⠀⠀</sub><br>
