@@ -20,6 +20,8 @@
 <br><br><br>
   <sub>⠀⠀</sub><br>
   <sub>⠀⠀</sub><br>
+    <sub>⠀⠀</sub><br>
+    <sub>⠀⠀</sub><br>
 <p align="center"><sub>just dniuid if im with my <a href="https://github.com/danticktum">bestfriend </a>ok</sub></p>
 <p align="center"><sub>im busy these days probably not on much</sub><br>⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
