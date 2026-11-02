@@ -1,7 +1,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=soundrod&color=bba49c&label=⠀⠀>-;;⁠;⁠;€ᐷ⠀⠀&style=plastic&abbreviated=true)
 
 
-<img align="left" width="50%" src="https://github.com/user-attachments/assets/7de969ef-f38c-40d1-8179-52815c8b58be" />
+<img align="left" width="50%" src="https://github.com/user-attachments/assets/9b404c61-f1a8-4386-bca4-412bbf2decf5" />
 <p align="center">
 <sub>hi im isaac or dears</sub><br>
 <sub>im a huge marc marquez & luca marini fan</sub><br>
@@ -18,6 +18,7 @@
 <p align="center">
 <a href="https://symbrock.atabook.org/">ata</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://shockwave.straw.page/">strawpage</a>　　
 <br><br><br>
+  <sub>⠀⠀</sub><br>
   <sub>⠀⠀</sub><br>
 <p align="center"><sub>just dniuid if im with my <a href="https://github.com/danticktum">bestfriend </a>ok</sub></p>
 <p align="center"><sub>im busy these days probably not on much</sub><br>⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
