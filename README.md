@@ -16,7 +16,7 @@
   <sub>⠀⠀</sub><br>
 
 <p align="center">
-<a href="https://symbrock.atabook.org/">ata</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://shockwave.straw.page/">strawpage</a>　　
+<a href="https://symbrock.atabook.org/">ata</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://weare93.straw.page/">strawpage</a>　　
 <br><br><br>
   <sub>⠀⠀</sub><br>
   <sub>⠀⠀</sub><br>
