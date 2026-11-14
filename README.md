@@ -17,7 +17,8 @@ alt="visitors">
 <p align="center"><img width="9%" src="https://github.com/user-attachments/assets/4df8d60d-3660-4da4-9289-56a6c59ae09a" />
 </p>
 <p align="center">
-<a href="https://rentry.co/marc-marquez">dashboard</a>　　<a href="https://guns.lol/motogp">guns.lol</a>　　<a href="https://weare93.straw.page/">strawpage</a>　　<a href="https://symbrock.atabook.org/">ata</a>
+  <sub>⠀⠀</sub><br>
+<a href="https://rentry.co/marc-marquez">dashboard</a>　　ᅠᅠ<a href="https://guns.lol/motogp">guns.lol</a>ᅠᅠ　　<a href="https://weare93.straw.page/">strawpage</a>　　ᅠᅠ<a href="https://symbrock.atabook.org/">ata</a>
 <br><br><br>
 
 ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀
