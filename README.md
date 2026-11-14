@@ -5,7 +5,7 @@ alt="visitors">
 <sub>ᅠᅠ</sub>
 <img align="left" width="35%" src="https://github.com/user-attachments/assets/e903696c-8df2-46dd-9122-f4461b0f97b7" />
 <p align="center">
-<sub>AᅠᅠSICKNESSᅠᅠONLYᅠᅠOFFᅠᅠPOACHERSᅠᅠPRIDE.</sub></sub><br>
+<sub>AᅠᅠSICKNESSᅠᅠONLYᅠᅠOFᅠᅠAᅠᅠPOACHERSᅠᅠPRIDE.</sub></sub><br>
 <sub>ROTTINGᅠᅠDEEPᅠᅠINᅠᅠYOU'REᅠᅠFLESH.</sub></sub><br>ᅠᅠ
 
 <sub></sub>
